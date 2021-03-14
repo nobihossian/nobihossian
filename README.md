@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nobihossian
-- 👀 I’m interested in  Cyber Security
+- 👀 I’m interested in Graphics Designing and Cyber Security.
 - 🌱 I’m currently learning  Cyber Security
-- 💞️ I’m looking to collaborate on 
+ 
 - 📫 How to reach me Mail: nobih33@gmail.com LinkIN: https://www.linkedin.com/in/nobi-hossain-5b7541151/
 
 <!---
